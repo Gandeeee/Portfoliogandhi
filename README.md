@@ -1,0 +1,2 @@
+# Portfoliogandhi
+portfolio biasa
